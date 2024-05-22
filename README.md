@@ -2,7 +2,7 @@
 
 Meu nome é Luccas Schmidt
 
-- Sou programador Font-End 🖥️
+- Programador Font-End 🖥️
 - Estudante de programação Back-End
 - Adoro compartilhar os meus conhecimantos. 🫶
 
