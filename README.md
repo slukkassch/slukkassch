@@ -6,7 +6,7 @@ Meu nome é Luccas Schmidt
 - Estudante de programação Back-End
 - Adoro compartilhar os meus conhecimantos. 🫶
 
-![](https://media.tenor.com/yk5uEwDVe6kAAAAi/cheer-cooky.gif)
+![](https://media.tenor.com/x-arnI-jv4YAAAAi/yoongi-suga.gif)
 
  **Entrete em contato** 📧
 
